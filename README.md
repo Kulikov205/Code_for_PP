@@ -13,3 +13,6 @@
 ![image](https://github.com/Kulikov205/Code_for_PP/assets/97594290/4f803d95-573d-4d11-868a-41a7ba93cfdb)
 
 ![image](https://github.com/Kulikov205/Code_for_PP/assets/97594290/e6c1e8ce-9070-43d0-8b63-36bcae74e344)
+
+
+[![Everything Is AWESOME](http://i.imgur.com/Ot5DWAW.png)](https://www.youtube.com/watch?v=SHWU0A8w_7c)
